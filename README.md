@@ -11,7 +11,7 @@ of century 21.
 
 The finest new CipWorX of a life time. Beautiful from every point of view.
 Worth more from every point of value. The magnificent CipWorX marries art with
-fashion providing you with many conveniant services we are sure you will be
+fashion providing you with many convenient services we are sure you will be
 delighted with.
 
 The magic of the transistor and other tiny, but amazing devices	will bring you
